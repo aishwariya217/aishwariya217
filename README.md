@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aishwariya217
+- 👀 I’m interested in web designing and development
+- 🌱 I’m currently learning b.tech information technology
+- 💞️ I’m looking to collaborate on various projects on web development
+- 📫 How to reach me in LinkedIn https://www.linkedin.com/mwlite/in/aishwariya-nanthakumar-1880a2205
